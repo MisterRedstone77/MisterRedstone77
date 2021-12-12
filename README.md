@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MisterRedstone77
+- 👀 I’m interested in gaming and coding
+- 🌱 I’m currently learning basic programming
+- 💞️ I’m looking to collaborate on ...
